@@ -1,4 +1,4 @@
-### **Benvindos ao meu perfil** 🥇♟️🖤
+### **Bem vindos ao meu perfil** 🥇♟️🖤
 
 Meu nome é **felipe vieira waenga**
 
